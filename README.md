@@ -33,24 +33,22 @@
 
 - 康锋@深圳
 
+- 舟舟
+
 - 存莉@北京
 
 - 刘宇旸
 
-- 舟舟
 
-
-- 花儿笑-jining1
-
-- Apprentice-皓~Auckland
-
-- 段尚国@上海
 
 
 ### 观察团成员介绍
 - 林峰@巴黎
 
+- 花儿笑-jining1
 
 
+- Apprentice-皓~Auckland
 
+- 段尚国@上海
 ### 其他招募需求
